@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web App Dev and Cyber Security 
 - 🌱 I’m currently learning Fullstack Development and Ethical Hacking 
 - 💞️ I’m looking to collaborate on Web Development and Ethical Hacking 
-- 📫 How to reach me nou120541954@noun.edu.ng
+- 📫 How to reach me ajmal.lanami@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Always willing to learn and to work
 
